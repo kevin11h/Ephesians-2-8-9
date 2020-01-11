@@ -21,3 +21,11 @@ For it is by grace you have been saved through faith, and this not from yourselv
 
 
 https://salvationbygrace.org/current-qa/the-gift-in-ephesians-28-9/
+
+![](https://melanienewton.com/wp-content/uploads/2016/04/Treasure.jpg)
+
+https://melanienewton.com/ephesians-study/
+
+![](https://secureservercdn.net/45.40.155.175/6ka.1b6.myftpupload.com/wp-content/uploads/2011/08/Treasure-Chest-Front-Cover111.jpg?time=1577209427)
+
+https://radicallychristian.com/the-treasure-chest-of-grace
