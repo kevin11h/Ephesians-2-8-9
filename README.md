@@ -17,3 +17,7 @@ For it is by grace you have been saved through faith, and this not from yourselv
 ![](https://missionventureministries.files.wordpress.com/2012/09/ephesians-2-vs-8-9.jpg)
 
 ![](https://manna.amazingfacts.org/amazingfacts/website/amazingfacts/images/scripture-pictures/ephesians-2-8-9.jpg)
+
+
+
+https://salvationbygrace.org/current-qa/the-gift-in-ephesians-28-9/
